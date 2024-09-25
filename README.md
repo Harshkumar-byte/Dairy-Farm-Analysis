@@ -56,3 +56,6 @@ The Power BI dashboard includes:
 
 ## 📞 Contact
 For any inquiries or feedback, please reach out at Harshkumar08163@gmail.com.
+![ss d](https://github.com/user-attachments/assets/7069ae3f-dd72-4bf7-9af4-b37aa432596f)
+![26 09 2024_02 17 57_REC](https://github.com/user-attachments/assets/6276c463-3e26-4178-b2b8-7885d716b3a7)
+
